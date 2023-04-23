@@ -37,3 +37,9 @@ Credits
     Special thanks to our beta testers for their valuable feedback and support.
 
 Get ready to sort your way to victory in this tricky and immersive ASMR puzzler! Download Sort by No Nothing now and enjoy the challenge!
+
+Get the Game
+
+App Store: https://apps.apple.com/us/app/sort/id1577491885
+
+Google Play Store: https://play.google.com/store/apps/details?id=com.nonothing.sort
